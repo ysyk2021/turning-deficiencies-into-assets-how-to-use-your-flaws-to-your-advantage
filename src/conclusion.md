@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter: Conclusion
-===================
-
 The ongoing journey of turning deficiencies into assets
 -------------------------------------------------------
 
