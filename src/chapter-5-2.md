@@ -1,4 +1,4 @@
-Chapter: Techniques for Building Confidence and Self-esteem
+Techniques for Building Confidence and Self-esteem
 ===========================================================
 
 In this chapter, we will explore various techniques and strategies for building confidence and self-esteem. We will delve into practical methods that can help you embrace your flaws, recognize your worth, and utilize your unique qualities as assets.

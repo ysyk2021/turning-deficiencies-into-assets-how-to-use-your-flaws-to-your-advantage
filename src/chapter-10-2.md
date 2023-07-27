@@ -22,5 +22,3 @@ As you come to the end of this book, we hope that you have gained valuable insig
 8. Remember that your journey of turning deficiencies into assets is unique to you. Don't compare yourself to others and focus on your own growth and development.
 
 We recommend that you continue to practice these techniques and strategies on a regular basis to turn your deficiencies into assets. Remember that it takes time and effort, but with persistence and dedication, you can achieve anything you set your mind to.
-
-Thank you for reading this book. We wish you all the best on your journey of turning your deficiencies into assets.

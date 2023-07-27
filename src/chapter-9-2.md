@@ -1,4 +1,4 @@
-Chapter: Setting Goals for Professional Growth through Asset-Based Thinking
+Setting Goals for Professional Growth through Asset-Based Thinking
 ===========================================================================
 
 In this chapter, we will explore how asset-based thinking can be applied to setting goals for professional growth. By leveraging our strengths and assets, we can create meaningful and impactful goals that propel us forward in our careers.

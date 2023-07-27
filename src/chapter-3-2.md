@@ -1,4 +1,4 @@
-Chapter: Overcoming Resistance to Accepting Your Flaws
+Overcoming Resistance to Accepting Your Flaws
 ======================================================
 
 In this chapter, we will delve into the importance of accepting our flaws and explore strategies for overcoming resistance to self-acceptance. We will examine common barriers that prevent us from embracing our imperfections and provide practical techniques to help shift our mindset towards acceptance and growth.

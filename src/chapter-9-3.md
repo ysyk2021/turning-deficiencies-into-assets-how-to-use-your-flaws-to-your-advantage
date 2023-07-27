@@ -1,4 +1,4 @@
-Chapter: Building Skills through Asset-Based Thinking
+Building Skills through Asset-Based Thinking
 =====================================================
 
 In this chapter, we will explore how asset-based thinking can be applied to building skills and transforming deficiencies into valuable assets. By adopting a positive mindset and leveraging our strengths, we can turn our flaws into opportunities for growth and learning.

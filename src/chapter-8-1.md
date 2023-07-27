@@ -1,4 +1,4 @@
-Chapter: Using Asset-Based Thinking for Personal Development
+Using Asset-Based Thinking for Personal Development
 ============================================================
 
 In the journey of personal development, adopting an asset-based thinking approach can be transformative. Instead of focusing solely on our deficiencies and weaknesses, asset-based thinking encourages us to shift our perspective and recognize the unique strengths and qualities we possess. This chapter explores the concept of asset-based thinking and provides practical strategies for harnessing our assets to fuel personal growth.
