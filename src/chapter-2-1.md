@@ -1,5 +1,3 @@
-What is Self-Acceptance?
-=================================
 
 Self-acceptance is a fundamental aspect of personal growth and well-being. It involves recognizing, embracing, and valuing oneself, flaws and all. This chapter delves into the concept of self-acceptance, its importance in our lives, and strategies for cultivating a healthy sense of self-acceptance.
 

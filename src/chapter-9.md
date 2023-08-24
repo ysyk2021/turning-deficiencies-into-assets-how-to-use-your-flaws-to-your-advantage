@@ -1,5 +1,3 @@
-Chapter 8: Applying Asset-Based Thinking to Professional Growth
-===============================================================
 
 Professional growth is essential for achieving success in any career. By applying asset-based thinking to professional growth, we can identify our strengths and assets, set goals for growth, and build new skills that enhance our value in the workplace. In this chapter, we will explore techniques for applying asset-based thinking to professional growth.
 

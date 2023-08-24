@@ -1,5 +1,3 @@
-Chapter 4: Building Confidence and Self-Esteem
-==============================================
 
 Confidence and self-esteem play crucial roles in turning deficiencies into assets. In this chapter, we will explore techniques for building confidence and self-esteem, as well as recognizing and challenging negative self-talk.
 

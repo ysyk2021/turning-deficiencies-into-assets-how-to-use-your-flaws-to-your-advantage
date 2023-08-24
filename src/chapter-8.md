@@ -1,5 +1,3 @@
-Chapter 7: Applying Asset-Based Thinking to Personal Growth
-===========================================================
 
 Asset-based thinking is the practice of focusing on our strengths and positive attributes rather than our deficiencies and weaknesses. By applying this mindset to personal growth, we can use our assets to overcome challenges and achieve our goals. In this chapter, we will discuss how to apply asset-based thinking to personal development, set goals for personal growth through asset-based thinking, and incorporate self-reflection into the process.
 

@@ -1,5 +1,3 @@
-Building Self-Compassion
-=================================
 
 In this chapter, we will explore the concept of self-compassion and its transformative power in turning deficiencies into assets. We will delve into the importance of treating ourselves with kindness, understanding, and forgiveness, and how self-compassion can lead to personal growth, resilience, and improved well-being.
 

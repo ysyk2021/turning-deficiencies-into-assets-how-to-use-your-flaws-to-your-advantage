@@ -1,5 +1,3 @@
-Recognizing and Challenging Negative Self-Talk
-=======================================================
 
 In this chapter, we will explore the concept of negative self-talk and how it can hinder personal growth and well-being. We will discuss the importance of recognizing negative self-talk patterns and provide strategies to challenge and replace them with positive and empowering thoughts.
 

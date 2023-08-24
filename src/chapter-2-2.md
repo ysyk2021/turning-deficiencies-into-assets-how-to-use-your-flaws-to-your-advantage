@@ -1,5 +1,3 @@
-Types of Self-Acceptance
-=================================
 
 Self-acceptance is a multi-faceted concept that can be approached and experienced in various ways. In this chapter, we will explore different types of self-acceptance, each offering a unique perspective on embracing and leveraging our flaws as assets.
 
